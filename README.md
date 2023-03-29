@@ -1,1 +1,3 @@
-# 20810310381-baikiemtra01
+Bui Chi Viet
+20810310381
+D15CNPM4
